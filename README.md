@@ -1,4 +1,4 @@
-# VR_Master(Shooting
+# VR_Master(Shooting)
 
 https://drive.google.com/file/d/1nsXiQr4Rvrp8socD7MfngQQDidmyEZDf/view?usp=sharing
 
